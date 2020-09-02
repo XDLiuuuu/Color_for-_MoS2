@@ -1,1 +1,1 @@
-# Color_for-_MoS2
+# Color_for_MoS2
